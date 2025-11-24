@@ -50,7 +50,7 @@
 ![image](https://github.com/user-attachments/assets/576d8176-28a4-40b8-b77b-6966341977b0)
 
 
-### Name: Swetha S V
+### Name: SWETHA S V
 ### Register Number: 212224230285
 
 ## RESULT:
